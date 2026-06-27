@@ -1,1 +1,2 @@
 mi proyecto es un proyecto grupal, hecho en compañía de Valentina, este se llama Trendy closet, es una tienda online de ropa juvenil que ofrece prendas de ropa modernas, accesibles y en tendencia, vendidas a través de redes sociales y plataformas digitales.
+kkkkkk
